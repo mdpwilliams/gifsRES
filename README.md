@@ -19,3 +19,5 @@ All the gifs I use for Slack resources and reactions.
 - [Delayed Laughing](https://media.giphy.com/media/H66rSOTDcNdrG/giphy.gif)
 - [Taylor Swift Scream](http://gph.is/176UW2m)
 - [Ignorance is Bliss](https://media.giphy.com/media/M3fYVlu7YN9Hq/giphy.gif)
+- [Cheer up!](https://gfycat.com/RaggedBountifulLadybug)
+
