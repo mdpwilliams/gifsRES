@@ -20,4 +20,4 @@ All the gifs I use for Slack resources and reactions.
 - [Taylor Swift Scream](http://gph.is/176UW2m)
 - [Ignorance is Bliss](https://media.giphy.com/media/M3fYVlu7YN9Hq/giphy.gif)
 - [Cheer up!](https://gfycat.com/RaggedBountifulLadybug)
-
+- [Duck](http://i.imgur.com/uhHyYvP.gif)
